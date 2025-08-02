@@ -24,7 +24,7 @@
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=harshavarrdan&show_icons=true&locale=en" alt="harshavarrdan" /></p>
 
 
-https://github.com/user-attachments/assets/6bfdcf8c-a665-4b8d-9148-6a3047dab1a9
+https://drive.google.com/file/d/1OBgXqyOSmSEFF-iMl3TTxCBLox_8x3i_/view?usp=sharing
 
 
 
